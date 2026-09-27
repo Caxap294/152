@@ -58,12 +58,12 @@ ___Выгорание___ — реальная проблема, берегите
 --------
 Визуализация рабочего пространства разработчика:
 
-![Идеальное рабочее место](https://unsplash.com)
+![Идеальное рабочее место](https://habrastorage.org/getpro/habr/upload_files/597/9ef/ab2/5979efab2996312a77dfa61cac3642cf.png)
 
-![Логотип GitHub](https://img.magnific.com/free-vector/multicolor-abstract-background_1123-53.jpg?semt=ais_hybrid&w=740 "Платформа для хостинга кода")
+![Логотип GitHub](https://upload.wikimedia.org/wikipedia/commons/c/c2/GitHub_Invertocat_Logo.svg?utm_source=ru.wikipedia.org&utm_campaign=index&utm_content=original "Платформа для хостинга кода")
 
 Кликните по картинке ниже, чтобы найти вдохновение для оформления своего рабочего стола:
-[![Вдохновение для рабочего стола](https://unsplash.com)](https://ru.pinterest.com/ideas/обои-для-рабочего-стола-компьютера/929790009455/)
+[![Вдохновение для рабочего стола](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTHlELos7QA46RKusiCIxyxMHbxeghb-b87-wsYA2cM0FRSKk18bf5uIcUK&s=10)](https://ru.pinterest.com/ideas/обои-для-рабочего-стола-компьютера/929790009455/)
 
 Цитата
 ------
